@@ -1,2 +1,0 @@
-# DeerJoke
-So dear jokes
